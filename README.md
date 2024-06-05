@@ -1,1 +1,0 @@
-# joel-p5-olga
